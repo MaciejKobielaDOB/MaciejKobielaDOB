@@ -3,7 +3,10 @@
 - 🌱 I’m currently learning everything
 - 😄 Pronouns: Hee/Hee
 
-![MjMichaelJacksonGIF](https://github.com/user-attachments/assets/4a10c84b-3291-4514-b2e8-5be0846f1c8a)
+![MichaeJacksonMoonWalkGIF](https://github.com/user-attachments/assets/4ff21e0d-60f9-4fe9-ba79-e5268df54fcb)
+
+
+
 
 <!---
 MaciejKobielaDOB/MaciejKobielaDOB is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
