@@ -3,7 +3,9 @@
 - 🌱 I’m currently learning everything
 - 😄 Pronouns: Hee/Hee
 
-![MichaeJacksonMoonWalkGIF](https://github.com/user-attachments/assets/4ff21e0d-60f9-4fe9-ba79-e5268df54fcb)
+![MichaelJacksonMjGIF](https://github.com/user-attachments/assets/ca18539f-1944-4896-aab9-02ded40eefc0)
+
+
 
 
 
