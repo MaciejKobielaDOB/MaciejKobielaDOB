@@ -2,7 +2,7 @@
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning everything
 - 😄 Pronouns: Hee/Hee
-
+- 🍌 Banana guy
 ![MichaelJacksonMjGIF](https://github.com/user-attachments/assets/ca18539f-1944-4896-aab9-02ded40eefc0)
 
 
